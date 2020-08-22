@@ -1,1 +1,0 @@
-# steinarlogi.github.io
